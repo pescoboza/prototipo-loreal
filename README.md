@@ -5,4 +5,4 @@ https://hubs.mozilla.com/scenes/iFuXTbT
 https://hubs.mozilla.com/scenes/gqcVQnq
 
 ### Auditorio
-TODO
+https://hubs.mozilla.com/scenes/7XfnrzH
